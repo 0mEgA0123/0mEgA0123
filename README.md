@@ -1,5 +1,5 @@
 Hi , I'm 0mega/Red.G . Just a Nobody who want to deep drive into hacking and other stuff.
-There Is nothing Interesting here.It Would better to not waste Time On Me.
+There Is nothing Interesting here.It Would be better  to not waste Time On Me.
 
 
 <!---
